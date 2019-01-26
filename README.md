@@ -1,1 +1,0 @@
-# smai-assignment-2
